@@ -1,4 +1,4 @@
 # MercadoTech
-Katerine Llano
+Katerine Llano :partying_face:
 Johana Carrillo
 Johanna Sanchez
